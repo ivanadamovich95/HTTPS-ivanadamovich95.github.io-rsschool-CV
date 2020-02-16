@@ -1,1 +1,1 @@
-https://github.com/ivanadamovich95/ivanadamovich95git
+HTTPS-ivanadamovich95.github.io-rsschool-CV
